@@ -98,3 +98,15 @@ Vinyl Records List
 95. Crystal Lake - Helix*
 96. Lana Del Rey - Chemtrails over the Country Club*
 97. Erra - Erra*
+98. Alter Bridge - Blackbird
+99. Norah Jones - Feels Like Home
+100. After The Burial - Evergreen*
+101. Breaking Benjamin - Dark before Dawn*
+102. Five Finger Death Punch - War is the Answer*
+103. Iron Maiden - Dance of Death
+104. Evanescence - Evanescence
+105. Trivium - Ascendency*
+106. Hoobastank - The Reason
+107. Doja Cat - Hot Pink*
+
+
